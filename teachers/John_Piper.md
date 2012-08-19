@@ -1,3 +1,6 @@
 ## John Piper
 
-Holler!
+John Pipers teaches all the things!
+
+- west coast
+- ballroom
