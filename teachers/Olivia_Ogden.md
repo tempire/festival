@@ -4,4 +4,6 @@ All Star amazing!
 
 > I like bears and cute cats!
 
-![Glen](http://tempi.re/images/standing-clutching-confused-face-top-tail.png)
+![Glen](http://images.tempi.re/web-in-a-box-feathered-rainbow-20120721-121207.jpg)
+
+<img src="http://images.tempi.re/web-in-a-box-feathered-rainbow-20120721-121207.jpg" />
