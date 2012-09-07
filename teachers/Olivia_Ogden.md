@@ -8,4 +8,4 @@ All Star amazing!  !!!!
 > I like bears and cute cats!
 
 ## Videos
-http://www.youtube.com/watch?v=FmxSk0wZxss&feature=g-logo-xit
+* http://www.youtube.com/watch?v=FmxSk0wZxss&feature=g-logo-xit
