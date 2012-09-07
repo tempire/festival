@@ -9,4 +9,4 @@ John Pipers teaches all the things!
 - ballroom
 
 ## Videos
-http://www.youtube.com/watch?v=FmxSk0wZxss&feature=g-logo-xit
+* http://www.youtube.com/watch?v=FmxSk0wZxss&feature=g-logo-xit
