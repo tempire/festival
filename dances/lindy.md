@@ -37,5 +37,7 @@ In the 1980s, American and European dancers from California, New York, London an
 
 
 ## Videos
-* http://www.youtube.com/watch?v=myJj0mNNe1Y
+* https://www.youtube.com/watch?v=NlTVJ9fOmro&feature=player_embedded
+* http://www.youtube.com/watch?feature=player_detailpage&v=ahoJReiCaPk#t=32s
+* https://www.youtube.com/watch?v=NlTVJ9fOmro&feature=player_embedded
 * http://www.youtube.com/watch?feature=player_detailpage&v=ahoJReiCaPk#t=32s

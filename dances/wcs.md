@@ -29,3 +29,4 @@ In 1988, West Coast Swing was pronounced the Official State Dance of California.
 * http://www.youtube.com/watch?v=cTyg2lE95XE
 * http://www.youtube.com/watch?v=y9fbBrX_rNc
 * http://www.youtube.com/watch?v=D6tHeJOeMVg
+* http://www.youtube.com/watch?v=D6tHeJOeMVg
