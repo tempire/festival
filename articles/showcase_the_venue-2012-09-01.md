@@ -13,6 +13,7 @@ The classes are held right next to each other, so there's no danger of getting l
 ### Food
 <img src="/images/articles/buffetdesserts.jpg" align="right" />
 We're not talking just basic options here - Gold Country has a huge buffet available with beautifully prepared salads, entrees, and desserts.  Add to that a 24-hour cafe for your breakfast and late-night energy replenishment, and there's no reason you need to go hungry as you're dancing, whether it's mid-afternoon, or 3 in the morning.
+<img src="/images/articles/sammich.jpg" align="left" />
 
 If you want something a little nicer, a full-service steakhouse is waiting for you.  This isn't your average Outback dinner, but rather high-class chefs creating mouth-watering dishes available only at Gold Country.
 
