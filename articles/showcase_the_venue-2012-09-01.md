@@ -20,7 +20,10 @@ Add to that a 24-hour cafe for your breakfast and late-night energy replenishmen
 If you want something a little nicer, a full-service steakhouse is waiting for you.  This isn't your average Outback dinner, but rather high-class chefs creating mouth-watering dishes available only at Gold Country.
 
 ### Rooms
+<img src="/images/articles/bedroom.jpg" align="right" />
 If you decide you want to spend your evenings lounging instead of driving home, you can stay in one of Gold Country's affordable suites.  We'll be providing a block of rooms you can rent along a delightful balcony.  If the weather is nice, the balcony may be used to host part of the event.
 
 ### Extras
+<img src="/images/articles/spirits.jpg" align="right" />
 If you want to loosen up a bit, there's plenty of spirits available at Gold Country's spirit lounge, and 10 on-tap brews for the beer lovers.  You can even stop by the piano bar for break.  And last but not least - it's a casino!  If you want to try your hand at some of the games, it's only a step or two away.
+<img src="/images/articles/beertap.jpg" align="left" />
