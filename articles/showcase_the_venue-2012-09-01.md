@@ -4,7 +4,9 @@
 DanceFest is about one thing - having a great time.  As such, we want to do something a little different than you see at most dance events: we want to showcase all the benefits you get for the weekend.  One of the best benefits - a full service casino.  We wanted to capture some of the magic, so we went out and took our own photos - that's right, these aren't just stock, these are custom photos taken at Gold Country directly for S1 DanceFest.
 
 ### Classes
-First, the classes will be held in in large beautifully lit rooms, with floor-to-ceiling windows.  As you drop in to each class, stop by the Espresso Bar to get your energy fix - you can't miss it, being *10 feet from each classroom*.  
+First, the classes will be held in in large beautifully lit rooms, with floor-to-ceiling windows.  As you drop in to each class, stop by the Espresso Bar to get your energy fix - you can't miss it, being 10 feet from each classroom.
+
+<img src="/images/articles/classrooms.jpg" align="right" />
 
 The classes are held right next to each other, so there's no danger of getting lost as you navigate the event.
 
