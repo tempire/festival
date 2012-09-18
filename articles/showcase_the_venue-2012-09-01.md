@@ -24,7 +24,7 @@ And yes, that is bacon-wrapped filet mignon.
 
 ### Rooms
 <img src="/images/articles/bedroom.jpg" align="right" />
-If you decide you want to spend your evenings lounging instead of driving home, you can stay in one of Gold Country's affordable suites.  We'll be providing a block of rooms you can rent along a delightful balcony.  If the weather is nice, the balcony may be used to host part of the event.
+If you decide you want to spend your evenings lounging instead of driving home, you can stay in one of Gold Country's affordable suites.  We'll be providing a block of rooms you can rent alongside a delightful balcony.  If the weather is nice, the balcony may be used to host part of the event.
 
 ### Extras
 <img src="/images/articles/spirits.jpg" align="right" />
