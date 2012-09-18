@@ -10,13 +10,13 @@ First, the classes will be held in in large beautifully lit rooms, with ceiling-
 As you drop in to each class, stop by the Espresso Bar to get your energy fix - you can't miss it - it's *10 feet from each classroom*.
 
 ### Food
-<img src="/images/articles/buffetdesserts.jpg" align="left" />
+<img src="/images/articles/buffetdesserts.jpg" align="right" />
 We're not talking just basic options here - Gold Country has a huge buffet available with beautifully prepared salads, entrees, and desserts.  
 
 <!--<img src="/images/articles/sammich.jpg" align="left" />-->
 There is also a 24-hour cafe for late-nights; there's no reason you need to go hungry as you're dancing, whether it's mid-afternoon or 3 in the morning.
 
-<img src="/images/articles/baconsteak.jpg" align="right" />
+<img src="/images/articles/baconsteak.jpg" align="left" />
 If you want something a little nicer, a full-service steakhouse is waiting for you.  This isn't your average Outback dinner, but rather high-class chefs creating mouth-watering dishes available only at Gold Country.
 
 ### Rooms
