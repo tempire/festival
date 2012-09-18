@@ -10,7 +10,7 @@ First, the classes will be held in in large beautifully lit rooms, with ceiling-
 As you drop in to each class, stop by the Espresso Bar to get your energy fix - you can't miss it - it's *10 feet from each classroom*.
 
 ### Food
-<img src="/images/articles/buffetdesserts.jpg" align="left" />
+<img src="/images/articles/buffetdesserts.jpg" align="right" />
 We're not talking just basic options here - Gold Country has a huge buffet available with beautifully prepared salads, entrees, and desserts.  
 
 <!--<img src="/images/articles/sammich.jpg" align="left" />-->
