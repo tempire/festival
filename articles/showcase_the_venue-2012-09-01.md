@@ -10,8 +10,9 @@ First, the classes will be held in in large beautifully lit rooms, with ceiling-
 As you drop in to each class, stop by the Espresso Bar to get your energy fix - you can't miss it - it's *10 feet from each classroom*.
 
 ### Food
-<img src="/images/articles/buffetdesserts.jpg" align="right" />
+<img src="/images/articles/buffetdesserts.jpg" align="left" />
 We're not talking just basic options here - Gold Country has a huge buffet available with beautifully prepared salads, entrees, and desserts.  
+
 <!--<img src="/images/articles/sammich.jpg" align="left" />-->
 Add to that a 24-hour cafe for your breakfast and late-night energy replenishment, and there's no reason you need to go hungry as you're dancing, whether it's mid-afternoon, or 3 in the morning.
 
