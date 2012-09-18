@@ -5,7 +5,7 @@ DanceFest is about one thing - having a great time.  As such, we want to do some
 
 ### Classes
 <img src="/images/articles/espressobar.jpg" align="right" />
-First, the classes will be held in in large beautifully lit rooms, with ceiling-to-floor windows.  The classes are held right next to each other, so there's no danger of getting lost as you navigate the event.
+The classes will be held in in large, beautifully well-lit rooms, with ceiling-to-floor windows.  The classes are held right next to each other, so there's no danger of getting lost as you navigate the event.
 
 As you drop in to each class, stop by the Espresso Bar to get your energy fix - you can't miss it - it's *10 feet from each classroom*.
 
