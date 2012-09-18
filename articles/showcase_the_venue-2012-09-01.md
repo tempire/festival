@@ -16,7 +16,7 @@ We're not talking just basic options here - Gold Country has a huge buffet avail
 <!--<img src="/images/articles/sammich.jpg" align="left" />-->
 There is also a 24-hour cafe for late-nights; there's no reason you need to go hungry as you're dancing, whether it's mid-afternoon or 3 in the morning.
 
-<img src="/images/articles/baconsteak.jpg" align="left" />
+<img src="/images/articles/baconsteak.jpg" align="left" style="margin-left: 0; margin-bottom: 30px;" />
 
 If you want something a little nicer, a full-service steakhouse is waiting for you.  This isn't your average Outback dinner, but rather high-class chefs creating mouth-watering dishes available only at Gold Country.
 
