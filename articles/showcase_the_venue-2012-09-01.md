@@ -20,6 +20,8 @@ There is also a 24-hour cafe for late-nights; there's no reason you need to go h
 
 If you want something a little nicer, a full-service steakhouse is waiting for you.  This isn't your average Outback dinner, but rather high-class chefs creating mouth-watering dishes available only at Gold Country.
 
+And yes, that is bacon-wrapped filet mignon.
+
 ### Rooms
 <img src="/images/articles/bedroom.jpg" align="right" />
 If you decide you want to spend your evenings lounging instead of driving home, you can stay in one of Gold Country's affordable suites.  We'll be providing a block of rooms you can rent along a delightful balcony.  If the weather is nice, the balcony may be used to host part of the event.
