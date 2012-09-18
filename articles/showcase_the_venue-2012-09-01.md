@@ -12,7 +12,7 @@ As you drop in to each class, stop by the Espresso Bar to get your energy fix - 
 ### Food
 <img src="/images/articles/buffetdesserts.jpg" align="right" />
 We're not talking just basic options here - Gold Country has a huge buffet available with beautifully prepared salads, entrees, and desserts.  
-<img src="/images/articles/sammich.jpg" align="left" />
+<!--<img src="/images/articles/sammich.jpg" align="left" />-->
 Add to that a 24-hour cafe for your breakfast and late-night energy replenishment, and there's no reason you need to go hungry as you're dancing, whether it's mid-afternoon, or 3 in the morning.
 
 <img src="/images/articles/baconsteak.jpg" align="right" />
