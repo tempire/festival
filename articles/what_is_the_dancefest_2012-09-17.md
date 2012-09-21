@@ -6,10 +6,8 @@ DanceFest is a 4-day dance festival where you can learn a wide variety of dances
 Dancers from Chico, Paradise, Oroville, Redding, and Sacramento have participated in making our community active and unique for over a decade.  Ballroom, Lindy Hop, West Coast Swing - no matter what the style, dancers of all ages have made our scene different from anywhere else in the world. 
 
 <img src="/images/articles/what-is-dancefest/back-in-the-dizzle.jpg" style="float: right" title="All the Peeps" />
-There was a time when Chico had 200 people coming out on a weekly basis, dancing all the ballroom dances, all having a super great time, and willing to get out on the floor no matter what was playing.
+Hundreds dancers have come out week after week, dancing all the ballroom dances, all having a super time, galavanting about the floor no matter what style of music was playing.
 
-Chico State's ballroom program spawned 100s of dancers per year, all focused on one thing above all - having a damned good time.
-
-That's what S1 Dance Fest is all about.  Having a great time, without any pretense.  
+That's what S1 DanceFest is all about.  No worries.  No pretense.  Having a great time.  
 
 Come join us!
