@@ -10,4 +10,4 @@ Hundreds dancers have come out week after week, dancing all the ballroom dances,
 
 That's what S1 DanceFest is all about.  No worries.  No pretense.  Having a great time.  
 
-### Come join us!
+<a href="/registration">Come join us!</a>
