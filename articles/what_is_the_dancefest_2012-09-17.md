@@ -1,9 +1,7 @@
 # What is the DanceFest?
 2012-07-15
 
-DanceFest is a 4-day dance festival where you can learn a wide variety of dances, including Ballroom and club style genres.
-
-DanceFest's focus, in addition to classes, is lots and lots and lots of social dancing.  
+DanceFest is a 4-day dance festival where you can learn a wide variety of dances, including Ballroom and club style genres. The focus, in addition to classes, is lots and lots and lots of social dancing.  
 
 Social Dancing starts early, and goes all night long. We want to throw an event that brings all of the diverse communities in Northern California together for one fantastic dance and fun filled weekend.  
 
