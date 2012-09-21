@@ -9,5 +9,5 @@ Dancers from Chico, Paradise, Oroville, Redding, and Sacramento have participate
 Hundreds dancers have come out week after week, dancing all the ballroom dances, all having a super time, galavanting about the floor no matter what style of music was playing.
 
 That's what S1 DanceFest is all about.  No worries.  No pretense.  Having a great time.  
-
+<br />
 <a href="/registration" style="font-size: 2em;">Come join us!</a>
