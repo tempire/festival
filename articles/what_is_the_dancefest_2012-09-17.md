@@ -1,9 +1,7 @@
 # What is the DanceFest?
 2012-07-15
 
-DanceFest is a 4-day dance festival where you can learn a wide variety of dances, including Ballroom and club style genres. The focus, in addition to classes, is lots and lots and lots of social dancing.  
-
-Social Dancing starts early, and goes all night long. We want to throw an event that brings all of the diverse communities in Northern California together for one fantastic dance and fun filled weekend.  
+DanceFest is a 4-day dance festival where you can learn a wide variety of dances, including Ballroom and club style genres. Social Dancing starts early, and goes all night long. We're throwing an event that brings all of the diverse communities in Northern California together for one fantastic dance and fun filled weekend.  
 
 Chico and its surrounding area has been a unique community for a long time.  Ballroom, Lindy Hop, West Coast Swing - no matter what the style, dancers of all ages have made our community different from anywhere else in the world.  Indeed; this is not rhetoric, world travelers have come through Chico and noted that there is no other dance community like it - anywhere.
 
