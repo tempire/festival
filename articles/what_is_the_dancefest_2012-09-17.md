@@ -1,5 +1,5 @@
 # What is the DanceFest?
-2012-08-02
+2012-09-26
 
 DanceFest is a 4-day dance festival where you can learn a wide variety of dances, including Ballroom and club style genres; social dancing starts early and goes all night long. We're throwing an event that brings all of the diverse communities in Northern California together for one fantastic dance and fun filled weekend.
 
