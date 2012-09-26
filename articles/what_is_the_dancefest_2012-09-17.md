@@ -10,4 +10,4 @@ Hundreds of dancers have come out week after week, dancing all the ballroom danc
 
 That's what S1 DanceFest is all about.  No worries.  No pretense.  Just having a great time.  
 
-<a href="/registration" style="font-size: 2em; position: relative; top: 15px">Come join us!</a>
+<a href="https://dancefest.herokuapp.com/registration" style="font-size: 2em; position: relative; top: 15px">Come join us!</a>
