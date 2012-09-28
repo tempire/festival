@@ -8,6 +8,10 @@ Dancers from Chico, Paradise, Oroville, Redding, and Sacramento have participate
 <img src="/images/articles/what-is-dancefest/back-in-the-dizzle.jpg" style="float: right" title="All the Peeps" />
 Hundreds of dancers have come out week after week, dancing all the ballroom dances, all having a super time, moving around the floor no matter what style of music was playing.
 
+<!--
+For years, hundreds of dancers have come out week after week to dance to every song in every style of dance.  No matter what style of music is playing, the floor is always full of people having fun.	
+-->
+
 That's what S1 DanceFest is all about.  No worries.  No pretense.  Just having a great time.  
 
 <a href="https://dancefest.herokuapp.com/registration" style="font-size: 2em; position: relative; top: 15px">Come join us!</a>
