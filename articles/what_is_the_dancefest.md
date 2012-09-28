@@ -6,7 +6,7 @@ DanceFest is a 4-day dance festival where you can learn a wide variety of dances
 Dancers from Chico, Paradise, Oroville, Redding, and Sacramento have participated in making our community active and unique for over a decade.  Ballroom, Lindy Hop, West Coast Swing - no matter what the style, dancers of all ages have made our scene different from anywhere else in the world. 
 
 <img src="/images/articles/what-is-dancefest/back-in-the-dizzle.jpg" style="float: right" title="All the Peeps" />
-Hundreds of dancers have come out week after week, dancing all the ballroom dances, all having a super time, galavanting about the floor no matter what style of music was playing.
+Hundreds of dancers have come out week after week, dancing all the ballroom dances, all having a super time, moving around the floor no matter what style of music was playing.
 
 That's what S1 DanceFest is all about.  No worries.  No pretense.  Just having a great time.  
 
