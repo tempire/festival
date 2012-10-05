@@ -1,4 +1,4 @@
-# Showcase: The Venue
+# Showcase: The Casino
 2012-09-10
 
 DanceFest is about one thing - having a great time.  As such, we want to do something a little different than you see at most dance events: we want to showcase *all* the benefits you get for the weekend.  One of the best benefits - a full service casino.  We wanted to capture some of the magic, so we went out and took our own photos - that's right, these aren't just stock, these are custom photos taken at Gold Country directly for S1 DanceFest.  Available dishes, rooms, and available facilities: take a closer look.
