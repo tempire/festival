@@ -6,4 +6,6 @@ The two-step is a partnered progressive dance that proceeds counterclockwise aro
 Traditionally, Two Step includes three steps: a quick step, a quick step, and then a slow step. In modern times, this is also known as Texas Polka. It can be danced to music with either a 2/4 or 4/4 time signature.
 
 ## Videos
-* http://www.youtube.com/watch?v=3G66kN6Gj7o&feature=related
+* http://www.youtube.com/watch?v=cTyg2lE95XE
+* http://www.youtube.com/watch?v=y9fbBrX_rNc
+* http://www.youtube.com/watch?v=D6tHeJOeMVg
