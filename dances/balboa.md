@@ -7,4 +7,4 @@ Balboa is danced to a wide variety of tempos. Because the basic step takes up su
 
 ## Videos
 * http://www.youtube.com/watch?v=JFcgORgZ-hk&feature=related
-* http://www.youtube.com/watch?feature=player_embedded&v=-s0n_fnlM4Q#!
+* http://www.youtube.com/watch?v=JFcgORgZ-hk&feature=related
