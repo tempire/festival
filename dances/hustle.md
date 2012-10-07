@@ -1,4 +1,4 @@
-# Hustle (New York)
+# NY Hustle
 
 ## About
 The couple dance form of hustle is usually called "New York Hustle" but frequently referred to by other names including "la hustle" or "latin hustle", it is very similar to the "Detroit hustle" but counted somewhat differently. It has some resemblance to, and steps in common with, swing and salsa dancing. As in the Latin dances, couples tend to move within a "spot" on the dance floor, as opposed to following a line of dance as in foxtrot, or as opposed to tracking within a slot as in West Coast Swing or LA Hustle.
