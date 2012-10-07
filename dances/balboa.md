@@ -6,5 +6,6 @@ Balboa today is commonly used both as a term to describe a fusion of dances that
 Balboa is danced to a wide variety of tempos. Because the basic step takes up such a small space, Balboa can be danced to fast music (over 300 beats per minute). Balboa is also danced to slow music (under 100 beats per minute), which allows more time for intricate footwork and variations.
 
 ## Videos
-* http://www.youtube.com/watch?v=JFcgORgZ-hk&feature=related
-* http://www.youtube.com/watch?v=JFcgORgZ-hk&feature=related
+* http://www.youtube.com/watch?v=cTyg2lE95XE
+* http://www.youtube.com/watch?v=y9fbBrX_rNc
+* http://www.youtube.com/watch?v=D6tHeJOeMVg
