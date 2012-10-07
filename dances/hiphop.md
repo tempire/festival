@@ -8,3 +8,4 @@ What distinguishes hip-hop dance from other forms of dance is that it is often f
 ## Videos
 * http://www.youtube.com/watch?v=TLtSfYX8tJk
 * http://www.youtube.com/watch?v=TLtSfYX8tJk
+* http://www.youtube.com/watch?v=TLtSfYX8tJk

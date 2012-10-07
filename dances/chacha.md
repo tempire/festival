@@ -8,3 +8,5 @@ Cha-cha-cha may be either danced to authentic Cuban music, or Latin Pop or Latin
 
 ## Videos
 * http://www.youtube.com/watch?v=sBFjbyMtINQ
+* http://www.youtube.com/watch?v=sBFjbyMtINQ
+* http://www.youtube.com/watch?v=sBFjbyMtINQ

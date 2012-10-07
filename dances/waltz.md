@@ -8,3 +8,4 @@ In its development, the Lindy Hop combined elements of both partnered and solo d
 ## Videos
 * https://www.youtube.com/watch?v=NlTVJ9fOmro
 * http://www.youtube.com/watch?v=ahoJReiCaPk#t=32s
+* http://www.youtube.com/watch?v=ahoJReiCaPk#t=32s
