@@ -28,5 +28,3 @@ If you decide you want to spend your evenings lounging instead of driving home, 
 ### Extras
 <img src="http://s1dancefest.com/images/articles/showcase-the-venue/spirits.jpg" style="float: left; margin-left: 0px;" />
 If you want to loosen up a bit, there's plenty of spirits available at Gold Country's spirit lounge, and 10 on-tap brews for the beer lovers.  You can even stop by the piano bar for break.  And last but not least - it's a casino!  If you want to try your hand at some of the games, it's only a step or two away.
-
-### Location
