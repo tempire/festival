@@ -5,9 +5,9 @@ It's a new year, and time to step it up from what came before.  As we've mention
 
 ### Not just a hotel, but a Casino.
 
-### Not just one dance, but many dances.
+#### Not just one dance, but many dances.
 
-### Not just one top-notch teacher, but many famous teachers.
+## Not just one top-notch teacher, but many famous teachers.
 
 So let's kick off 2013 with the coolest trailer you've seen for *any* dance event.
 
