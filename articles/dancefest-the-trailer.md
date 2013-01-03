@@ -5,9 +5,9 @@ It's a new year; time to step it up from what came before.  As we've mentioned, 
 
 This is just a taste of the effort we're putting forth.
 
-<p style="font-size: 1.1em;">Not just a hotel, but a Casino.</p>
+<h3>Not just a hotel, but a Casino.</h3>
 
-<p style="font-size: 1.2em;">Not just one dance, but many dances.</p>
+* Not just one dance, but many dances.
 
 <p style="font-size: 1.3em;">Not just famous teachers in one genre, but famous teachers is many genres.</p>
 
