@@ -9,7 +9,7 @@ Not just a hotel, but a Casino.
 
 Not just one dance, but many dances.
 
-Not just one top-notch teacher, but many famous teachers.
+Not just one top-notch teacher in one genre, but many famous teachers.
 
 DanceFest will expose you to levels of dancing you haven't seen before in these genres.  We want to help you take your dancing to the next level, easily and hassle-free.
 
