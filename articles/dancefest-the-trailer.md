@@ -3,11 +3,11 @@
 
 It's a new year, and time to step it up from what came before.  As we've mentioned before, DanceFest is different from other events - we're going that extra mile.
 
-### Not just a hotel, but a Casino.
+<p>Not just a hotel, but a Casino.</p>
 
-#### Not just one dance, but many dances.
+<p>Not just one dance, but many dances.</p>
 
-## Not just one top-notch teacher, but many famous teachers.
+<p> Not just one top-notch teacher, but many famous teachers.</p>
 
 So let's kick off 2013 with the coolest trailer you've seen for *any* dance event.
 
