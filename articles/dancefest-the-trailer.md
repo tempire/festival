@@ -15,7 +15,7 @@ DanceFest will expose you to levels of dancing you haven't seen before.  We want
 
 So let's kick off 2013 with the coolest trailer you've seen for *any* dance event.
 
-<iframe class="video youtube-player" src="http://www.youtube.com/embed/FmxSk0wZxss#t=29s?theme=dark&amp;color=white" frameborder="0" allowfullscreen"=""></iframe>
+<iframe class="video youtube-player" src="http://www.youtube.com/embed/wq7ftOZBy0E#t=29s?theme=dark&amp;color=white" frameborder="0" allowfullscreen"=""></iframe>
 
 Seriously.
 
