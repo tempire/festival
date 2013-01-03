@@ -1,7 +1,7 @@
 # DanceFest: The Trailer
 2013-01-03
 
-It's a new year, and time to step it up from what came before.  As we've mentioned before, DanceFest is different from other events, so we're going that extra mile to make sure this event is a premium, fresh experience.  Towards that end, we have something special for you: The DanceFest Trailer.
+It's a new year; time to step it up from what came before.  As we've mentioned, DanceFest is different from other events, so we're going that extra mile to make sure this event is a premium, fresh experience.  Towards that end, we have something special for you: The DanceFest Trailer.
 
 This is just a taste of the effort we're putting forth.
 
