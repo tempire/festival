@@ -7,7 +7,7 @@ It's a new year, and time to step it up from what came before.  As we've mention
 
 <p>Not just one dance, but many dances.</p>
 
-<p> Not just one top-notch teacher, but many famous teachers.</p>
+#### Not just one top-notch teacher, but many famous teachers.
 
 So let's kick off 2013 with the coolest trailer you've seen for *any* dance event.
 
