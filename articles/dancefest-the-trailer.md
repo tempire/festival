@@ -9,7 +9,7 @@ This is just a taste of the effort we're putting forth.
 
 *Not just famous teachers for one dance, but famous teachers for many dances.*
 
-Let's kick off 2013 with a **KABOOM**.
+Let's kick off 2013 with a **KAKOW**.
 
 <iframe class="video youtube-player" 
 style="box-shadow: 0px 0px 25px 1px #000;border: groove black 1px;width: 585px;height: 355px;" src="http://www.youtube.com/embed/wq7ftOZBy0E#t=29s?theme=dark&amp;color=white" frameborder="0" allowfullscreen"=""></iframe>
