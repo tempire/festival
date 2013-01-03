@@ -5,9 +5,11 @@ It's a new year; time to step it up from what came before.  As we've mentioned, 
 
 This is just a taste of the effort we're putting forth.
 
-Not just a hotel, but a Casino.
-Not just one dance, but many dances.
-Not just famous teachers in one genre, but famous teachers is many genres.
+*Not just a hotel, but a Casino.*
+
+*Not just one dance, but many dances.*
+
+*Not just famous teachers in one genre, but famous teachers is many genres.*
 
 DanceFest will expose you to levels of dancing you haven't seen before.  We want to help you take your dancing to the next level, easily and with no stress.
 
