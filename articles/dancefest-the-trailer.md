@@ -7,18 +7,15 @@ This is just a taste of the effort we're putting forth.
 
 *Not just a hotel, but a Casino.*
 
-*Not just one dance, but many dances.*
+*Not just famous teachers for one dance, but famous teachers is many dances.*
 
-*Not just famous teachers in one genre, but famous teachers is many genres.*
-
-DanceFest will expose you to levels of dancing you haven't seen before.  We want to help you take your dancing to the next level, easily and with no stress.
-
-So let's kick off 2013 with the coolest trailer you've seen for *any* dance event.
+Let's kick off 2013 with the coolest video you've seen for *any* dance event.
 
 <iframe class="video youtube-player" 
 style="box-shadow: 0px 0px 25px 1px #000;border: groove black 1px;width: 585px;height: 355px;" src="http://www.youtube.com/embed/wq7ftOZBy0E#t=29s?theme=dark&amp;color=white" frameborder="0" allowfullscreen"=""></iframe>
 
 <br />
+
 **This is DanceFest.**
 
 *And we're just getting started.*
