@@ -5,10 +5,8 @@ It's a new year - time to step it up from what came before.  As we've previously
 
 Towards that end, we have something special for you: The DanceFest Trailer.
 
-<ul>
-<li>Not just a hotel, but a Casino.<li>
-<li>Not just famous teachers for one dance, but famous teachers for many dances.</li>
-</ul>
+<p>Not just a hotel, but a Casino.</p>
+<p>Not just famous teachers for one dance, but famous teachers for many dances.</p>
 
 This is just a taste of the effort we're putting forth.  Let's kick off 2013 with a **BANG**.
 
