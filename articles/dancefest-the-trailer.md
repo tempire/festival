@@ -25,8 +25,6 @@ height: 355px;
 
 <br />
 
-Seriously.
-
 **This is DanceFest.**
 
 *And we're just getting started.*
