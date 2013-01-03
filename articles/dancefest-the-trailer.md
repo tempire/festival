@@ -9,7 +9,7 @@ This is just a taste of the effort we're putting forth.
 
 <p style="font-size: 1.2em;">Not just one dance, but many dances.</p>
 
-Not just famous teachers in one genre, but famous teachers is many genres.
+<p style="font-size: 1.3em;">Not just famous teachers in one genre, but famous teachers is many genres.</p>
 
 DanceFest will expose you to levels of dancing you haven't seen before.  We want to help you take your dancing to the next level, easily and with no stress.
 
