@@ -15,6 +15,10 @@ DanceFest will expose you to levels of dancing you haven't seen before.  We want
 
 So let's kick off 2013 with the coolest trailer you've seen for *any* dance event.
 
+<div style="box-shadow: 0px 0px 25px 1px #000; border: groove black 1px; width: 100%;">
+<iframe class="video youtube-player" src="http://www.youtube.com/embed/wq7ftOZBy0E#t=29s?theme=dark&amp;color=white" frameborder="0" allowfullscreen"=""></iframe>
+</div>
+
 Seriously.
 
 **This is DanceFest.**
