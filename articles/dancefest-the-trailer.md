@@ -10,7 +10,7 @@ Not just a hotel, but a Casino.
 Not just one dance, but many dances.
 
 Not just famous teachers in one genre, but famous teachers is many genres.
-
+a
 DanceFest will expose you to levels of dancing you haven't seen before.  We want to help you take your dancing to the next level, easily and with no stress.
 
 So let's kick off 2013 with the coolest trailer you've seen for *any* dance event.
