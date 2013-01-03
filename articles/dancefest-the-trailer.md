@@ -7,7 +7,7 @@ This is just a taste of the effort we're putting forth.
 
 *Not just a hotel, but a Casino.*
 
-*Not just famous teachers for one dance, but famous teachers is many dances.*
+*Not just famous teachers for one dance, but famous teachers for many dances.*
 
 Let's kick off 2013 with the coolest video you've seen for *any* dance event.
 
