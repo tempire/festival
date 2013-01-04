@@ -5,10 +5,8 @@ It's a new year - time to step it up from what came before.  As we've previously
 
 Towards that end, we have something special for you: The DanceFest Trailer.  Let's kick off 2013 with a **BANG**.
 
-<iframe class="video youtube-player" 
-style="box-shadow: 0px 0px 25px 1px #000;border: groove black 1px;width: 585px;height: 355px;" src="http://www.youtube.com/embed/wq7ftOZBy0E#t=29s?theme=dark&amp;color=white" frameborder="0" allowfullscreen"=""></iframe>
-
 <iframe class="video youtube-player" width="640" height="360" src="https://www.youtube.com/embed/wq7ftOZBy0E?start=29&showinfo=0&autohide=1&theme=dark&color=white&feature=player_embedded" frameborder="0" allowfullscreen></iframe>
+
 <br />
 
 **This is DanceFest.**
