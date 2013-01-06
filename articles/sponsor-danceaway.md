@@ -25,7 +25,10 @@ Check 'em out!
 
 <div>
 
-* Facebook - https://www.facebook.com/pages/DanceAway/230085137241?fref=ts
+<ul>
+<li>Facebook - https://www.facebook.com/pages/DanceAway/230085137241?fref=ts</li>
+</ul>
+
 * Twitter - http://twitter.com/danceawaychico
 * Blog - http://danceawaydesigns.com/blogs/danceaway
 * Online shop - http://danceawaydesigns.com/
