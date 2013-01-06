@@ -9,7 +9,7 @@ There's more though - did you know DanceAway also has a unique line of Yoga-wear
 
 They've also expanded with their new West Coast Swing corner - hot little outfits and super cute dresses chosen specifically for you to stand out on the floor.
 
-<img src="http://cdn.shopify.com/s/files/1/0150/1774/products/leopardbacktop_medium.jpg" style="margin: 0; padding: 0; background: 0;" align="left" />
+<img src="http://cdn.shopify.com/s/files/1/0150/1774/products/leopardbacktop_medium.jpg" style="margin: 0 10px 0 0; border-radius: 8px; padding: 0; background: 0;" align="left" />
 
 And seriously, you don't know anything until you've seen the custom dance shoes they can deliver.
 
