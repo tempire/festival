@@ -19,6 +19,8 @@ Ready for the best part?
 
 It's all available online.  You can get all your danceaway supplies any time from their easy new site, http://danceawaydesigns.com/
 
+ +1 (530) 891-0672 &nbsp; <span style="color: gray;">|</span> &nbsp; <a href="http://danceawaydesigns.com/" style="color: #D90071;">http://danceawaydesigns.com/</a> 
+ 
 Check 'em out!
 
 * Facebook - https://www.facebook.com/pages/DanceAway/230085137241?fref=ts
