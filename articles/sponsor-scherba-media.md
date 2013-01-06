@@ -3,7 +3,7 @@
 
 Scherba Media is a full service media production firm providing the best in contemporary media to Chico and surrounding areas.  Remember the trailer released last week?  Yeah...that's Scherba Media work.  
 
-<img style="width: 370px; margin: 0; padding: 0; background: 0;" src="/images/scherbamedialogo_on_gray.png" />
+<img align="right" style="width: 370px; margin: 0; padding: 0; background: 0;" src="/images/scherbamedialogo_on_gray.png" />
 
 <img style="width: 200px; margin: 0; padding: 0; background: 0" src="sm_thumb.png" />
 
