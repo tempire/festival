@@ -23,12 +23,9 @@ It's all available online.  You can get all your danceaway supplies any time fro
  
 Check 'em out!
 
-<div>
+<ul></ul>
 
-<ul>
-<li>Facebook - https://www.facebook.com/pages/DanceAway/230085137241?fref=ts</li>
-</ul>
-
+* Facebook - https://www.facebook.com/pages/DanceAway/230085137241?fref=ts</li>
 * Twitter - http://twitter.com/danceawaychico
 * Blog - http://danceawaydesigns.com/blogs/danceaway
 * Online shop - http://danceawaydesigns.com/
