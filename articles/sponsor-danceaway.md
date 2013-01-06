@@ -3,6 +3,8 @@
 
 You probably already know, is *the* place to go for dance supplies.  Ballet and tap, baton and roller skating, ballroom and swing, they have everything.
 
+<img src="/images/danceaway_chip.png" style="width: 199px; margin: 0 0 0 17px; padding: 0; background: 0;" align="right" />
+
 There's more though - did you know DanceAway also has a unique line of Yoga-wear?  It's pretty nifty stuff you won't find anywhere else.
 
 They've also expanded with their new West Coast Swing corner - hot little outfits and super cute dresses chosen specifically for you to stand out on the floor.
