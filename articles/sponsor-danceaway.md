@@ -23,7 +23,7 @@ It's all available online.  You can get all your danceaway supplies any time fro
  
 Check 'em out!
 
-<ul></ul>
+<p>
 
 * Facebook - https://www.facebook.com/pages/DanceAway/230085137241?fref=ts</li>
 * Twitter - http://twitter.com/danceawaychico
@@ -31,6 +31,6 @@ Check 'em out!
 * Online shop - http://danceawaydesigns.com/
 * West Coast Swing Corner - http://www.danceawaydesigns.com/collections/the-west-coast-swing-corner
 
-</div>
+</p>
 
 <iframe width="640" height="480" frameborder="0" scrolling="no" marginheight="0" marginwidth="0" src="https://maps.google.com/maps?f=q&amp;source=s_q&amp;hl=en&amp;geocode=&amp;q=dance+away&amp;aq=&amp;sll=37.269174,-119.306607&amp;sspn=12.35152,19.291992&amp;t=h&amp;ie=UTF8&amp;hq=dance+away&amp;hnear=&amp;cid=18110428242688569775&amp;ll=39.749038,-121.8437&amp;spn=0.063351,0.109863&amp;z=13&amp;iwloc=A&amp;output=embed"></iframe><br /><small><a href="https://maps.google.com/maps?f=q&amp;source=embed&amp;hl=en&amp;geocode=&amp;q=dance+away&amp;aq=&amp;sll=37.269174,-119.306607&amp;sspn=12.35152,19.291992&amp;t=h&amp;ie=UTF8&amp;hq=dance+away&amp;hnear=&amp;cid=18110428242688569775&amp;ll=39.749038,-121.8437&amp;spn=0.063351,0.109863&amp;z=13&amp;iwloc=A" style="color:#0000FF;text-align:left">View Larger Map</a></small>
