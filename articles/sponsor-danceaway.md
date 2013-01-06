@@ -17,7 +17,7 @@ DanceAway is more than just a shop, they're involved in the community - their we
 
 Ready for the best part?  
 
-It's all available online.  You can get all your danceaway supplies any time from their easy new site, http://danceawaydesigns.com/
+It's all available online.  You can get all your danceaway supplies any time from their <a href="http://danceawaydesigns.com/">easy website</a>. 
 
  +1 (530) 891-0672 &nbsp; <span style="color: gray;">|</span> &nbsp; <a href="http://danceawaydesigns.com/" style="color: #D90071;">http://danceawaydesigns.com/</a> 
 
