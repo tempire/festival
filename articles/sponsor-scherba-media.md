@@ -1,7 +1,7 @@
 # Sponsor: Scherba Media
 2013-01-09
 
-<img width="370" style="margin: 0; padding: 0; background: 0;" src="/images/scherbamedialogo_on_gray.png" />
+<img style="width: 370px; margin: 0; padding: 0; background: 0;" src="/images/scherbamedialogo_on_gray.png" />
 
 Scherba Media is a full service media production firm providing the best in contemporary media to Chico and surrounding areas.  Remember the trailer released last week?  Yeah...that's Scherba Media work.  
 
