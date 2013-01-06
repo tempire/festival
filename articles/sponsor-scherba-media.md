@@ -11,6 +11,4 @@ Scherba Media is a full service media production firm providing the best in cont
 
 Whether small or large, Scherba Media has packages that can fit your budget from simple websites to hot shot promo videos.  They can do the same for you online, or provide the production for your live event.  Whether it be a Fund raiser, Fashion show, or a private wedding, Scherba Media has you covered.
 
-<a href="http://scherbamedia.com/">http://scherbamedia.com/</a>
-
-### +1 530 520 9289
+<a href="http://scherbamedia.com/">http://scherbamedia.com/</a> | +1 530 520 9289
