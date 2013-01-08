@@ -12,7 +12,7 @@ Small or large, Scherba Media has packages that can fit your budget - from simpl
 
 What's more, Scherba Media can also host and coordinate your live events, having hosted Fund raisers, Fashion shows, private weddings, and other promotional events.  Scherba Media has you covered.
 
-<img align="right" style="width: 370px; margin: 0 0 0 17px; padding: 0; background: 0;" src="/images/scherbamedialogo_on_gray.png" />
+<img align="left" style="width: 370px; margin: 0 0 0 17px; padding: 0; background: 0;" src="/images/scherbamedialogo_on_gray.png" />
 <br />
  +1 530 520 9289 <br />
  <a href="http://scherbamedia.com/">http://scherbamedia.com/</a> 
