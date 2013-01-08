@@ -10,7 +10,9 @@ Scherba Media specializes in complete branding packages - giving your business a
 
 Small or large, Scherba Media has packages that can fit your budget - from simple websites to hot shot promo videos.  They can provide simple brochure websites, or design a complete branding presence for your online and offline customers.  
 
-What's more, Scherba Media can also host and coordinate your live events, having hosted Fund raisers, Fashion shows, private weddings, and other promotional events.  Scherba Media has you covered.
+What's more, they can also host and coordinate your live events, having hosted Fund raisers, Fashion shows, private weddings, and other promotional events.  
+
+When you need to look good, Scherba Media has you covered.
 
 <span style="float: right;">
 +1 530 520 9289 &nbsp; <span style="color: gray;">|</span> &nbsp; <a href="http://scherbamedia.com/">http://scherbamedia.com/</a> 
