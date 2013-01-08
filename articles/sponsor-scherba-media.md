@@ -8,8 +8,9 @@ Scherba Media is a full service media production firm providing the best in cont
 
 Scherba Media specializes in complete branding packages - giving your business a fitting image that matches the service you provide.  All marketing and branding of the DanceFest itself is provided by Scherba Media, custom designed specifically for the unique goals of Studio One.
 
+Small or large, Scherba Media has packages that can fit your budget - from simple websites to hot shot promo videos.  They can provide simple brochure websites, or design a complete branding presence for your online and offline customers.  
 
-Whether small or large, Scherba Media has packages that can fit your budget from simple websites to hot shot promo videos.  They can do the same for you online, or provide the production for your live event.  Whether it be a Fund raiser, Fashion show, or a private wedding, Scherba Media has you covered.
+What's more, Scherba Media can also host and coordinate your live events, having hosted Fund raisers, Fashion shows, private weddings, and other promotional events.  Scherba Media has you covered.
 
 <img align="right" style="width: 370px; margin: 0 0 0 17px; padding: 0; background: 0;" src="/images/scherbamedialogo_on_gray.png" />
 
