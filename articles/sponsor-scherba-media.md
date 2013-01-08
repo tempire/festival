@@ -14,4 +14,5 @@ What's more, Scherba Media can also host and coordinate your live events, having
 
 <img align="right" style="width: 370px; margin: 0 0 0 17px; padding: 0; background: 0;" src="/images/scherbamedialogo_on_gray.png" />
 <br />
- +1 530 520 9289 &nbsp; <span style="color: gray;">|</span> &nbsp; <a href="http://scherbamedia.com/">http://scherbamedia.com/</a> 
+ +1 530 520 9289 <br />
+ <a href="http://scherbamedia.com/">http://scherbamedia.com/</a> 
