@@ -1,6 +1,8 @@
 # Sponsor: Scherba Media
 2013-01-09
 
+<meta property="og:image" content="http://s1dancefest.com/images/sm_thumb.png" />
+
 Scherba Media is a full service media production firm providing the best in contemporary media to Chico and surrounding areas.  Remember the trailer released last week?  Yep, that's Scherba Media work.
 
 
