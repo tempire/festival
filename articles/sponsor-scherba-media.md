@@ -17,5 +17,3 @@ What's more, they can also host and coordinate your live events, having hosted F
 </span>
  <!--<img align="right" style="width: 370px; margin: 0 0 0 17px; padding: 0; background: 0;" src="/images/scherbamedialogo_on_gray.png" />
 -->
-
-<meta property="og:image" content="http://s1dancefest.com/images/sm_thumb.png" />
