@@ -3,11 +3,11 @@
 
 You probably already know that DanceAway is *the* place to go for dance supplies.  Ballet and tap, baton twirling, roller skating, ballroom and swing - they have everything.
 
-<img src="/images/danceaway_chip.png" style="width: 199px; margin: 0 0 0 17px; padding: 0; background: 0;" align="right" />
+<img src="/images/danceaway_chip.png" style="width: 199px; margin: 0 0 50px 17px; padding: 0; background: 0;" align="right" />
 
 DanceAway is more than just a shop, they're involved in the community - their weekly blog tells you what's going on and gives you inside reviews on the latest products.  They have decades (literally, decades) of experience.  When you walk in the store, tell them where you're dancing and they probably aleady know the details of what you need.
 
-<a href="http://danceawaydesigns.com/collections/yoga-and-activewear/products/tie-dye-waist-yoga-pant"><img src="http://cdn.shopify.com/s/files/1/0150/1774/products/t_partypant_medium.jpg?71" style="margin: 8px 38px 0 0; padding: 0; background: 0;" align="left" /></a>
+<a href="http://danceawaydesigns.com/collections/yoga-and-activewear/products/tie-dye-waist-yoga-pant"><img src="http://cdn.shopify.com/s/files/1/0150/1774/products/t_partypant_medium.jpg?71" style="border-radius: 8px; margin: 8px 38px 0 0; padding: 0; background: 0;" align="left" /></a>
 
 There's more though - did you know DanceAway also has a <a href="http://danceawaydesigns.com/collections/yoga-and-activewear">unique line of Yoga-wear</a>?  It's pretty nifty stuff you won't find anywhere else.  What's more, they're offering a special promotion of 40% of select yoga outfits; you can look great and be relaxed for a low price.
 
