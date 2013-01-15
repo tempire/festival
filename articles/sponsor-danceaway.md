@@ -9,7 +9,7 @@ DanceAway is more than just a shop, they're involved in the community - their we
 
 <a href="http://danceawaydesigns.com/collections/yoga-and-activewear/products/tie-dye-waist-yoga-pant"><img src="http://cdn.shopify.com/s/files/1/0150/1774/products/t_partypant_medium.jpg?71" style="border-radius: 8px; margin: 8px 28px 0 0; padding: 0; background: 0;" align="left" /></a>
 
-Did you know DanceAway also has a <a href="http://danceawaydesigns.com/collections/yoga-and-activewear">unique line of Yoga-wear</a>?  It's pretty nifty stuff you won't find anywhere else.  What's more, they're offering a special promotion of 40% of select yoga outfits; you can look great and be relaxed for a low price.
+Did you know DanceAway also has a <a href="http://danceawaydesigns.com/collections/yoga-and-activewear">unique line of Yoga-wear</a>?  It's pretty nifty stuff you won't find anywhere else.  What's more, they're offering a special promotion of <em>40% off</em> select yoga outfits; you can look great and be relaxed for a low price.
 
 They've also expanded with their new West Coast Swing corner - hot little outfits and super cute dresses chosen specifically for you to stand out on the floor.
 
