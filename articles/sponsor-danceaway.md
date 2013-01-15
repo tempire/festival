@@ -1,15 +1,17 @@
 # Sponsor: DanceAway
 2013-01-15
 
-You probably already know that DanceAway is *the* place to go for dance supplies.  Ballet and tap, baton twirling, roller skating, ballroom and swing - they have everything.
+You probably already know that DanceAway is *the* place to go for dance supplies. Ballet and tap, baton twirling, roller skating, ballroom and swing - they have everything.
 
 <img src="/images/danceaway_chip.png" style="width: 199px; margin: 0 0 50px 17px; padding: 0; background: 0;" align="right" />
 
-DanceAway is more than just a shop, they're involved in the community - their weekly blog tells you what's going on and gives you inside reviews on the latest products.  They have decades (literally, decades) of experience.  When you walk in the store, tell them where you're dancing and they probably aleady know the details of what you need.
+DanceAway is more than just a shop, they're involved in the community - their weekly blog tells you what's going on and gives you inside reviews on the latest products. They have decades (literally, decades) of experience. When you walk in the store, tell them where you're dancing and they probably aleady know the details of what you need.
 
 <a href="http://danceawaydesigns.com/collections/yoga-and-activewear/products/tie-dye-waist-yoga-pant"><img src="http://cdn.shopify.com/s/files/1/0150/1774/products/t_partypant_medium.jpg?71" style="box-shadow: 2px 2px 7px 0px black; border-radius: 8px; margin: 8px 28px 0 0; padding: 0; background: 0;" align="left" /></a>
 
-DanceAway also has a <a href="http://danceawaydesigns.com/collections/yoga-and-activewear">unique line of Yoga-wear</a> - it's pretty nifty stuff you won't find anywhere else.  What's more, they're offering a special promotion of <em>40% off</em> select yoga outfits; you can look great and be relaxed for a low price.
+DanceAway also has a <a href="http://danceawaydesigns.com/collections/yoga-and-activewear">unique line of yoga-wear</a> - it's pretty nifty stuff you won't find anywhere else. Their yoga wear is perfect for a wide range of ages and ability levels, and the outfits can go from the classroom to running errands without looking like gym clothes.
+
+What's more, they're offering a special promotion of <em>40% off</em> select yoga outfits; you can look great and be relaxed for a low price.
 
 They've also expanded with their new West Coast Swing corner - hot little outfits and super cute dresses chosen specifically for you to stand out on the floor.
 
@@ -19,7 +21,7 @@ And seriously, you don't know anything until you've seen the custom dance shoes 
 
 Ready for the best part?  
 
-It's all available online.  You can get all your danceaway supplies any time from their <a href="http://danceawaydesigns.com/">easy website</a>. 
+It's all available online. You can get all your danceaway supplies any time from their <a href="http://danceawaydesigns.com/">easy website</a>. 
 
  +1 (530) 891-0672 &nbsp; <span style="color: gray;">|</span> &nbsp; <a href="http://danceawaydesigns.com/" style="color: #D90071;">http://danceawaydesigns.com/</a> 
 
