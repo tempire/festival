@@ -9,7 +9,7 @@ DanceAway is more than just a shop, they're involved in the community - their we
 
 <a href="http://danceawaydesigns.com/collections/yoga-and-activewear/products/tie-dye-waist-yoga-pant"><img src="http://cdn.shopify.com/s/files/1/0150/1774/products/t_partypant_medium.jpg?71" style="box-shadow: 2px 2px 7px 0px black; border-radius: 8px; margin: 8px 28px 5px 0; padding: 0; background: 0;" align="left" /></a>
 
-DanceAway also has a <a href="http://danceawaydesigns.com/collections/yoga-and-activewear">unique line of yoga-wear</a> - it's pretty nifty stuff you won't find anywhere else. Their yoga wear is perfect for a wide range of ages and ability levels, and the outfits can go from the classroom to running errands without looking like gym clothes.
+Did you know that DanceAway also has a <a href="http://danceawaydesigns.com/collections/yoga-and-activewear">unique line of yoga-wear</a>? It's pretty nifty stuff you won't find anywhere else. Their yoga wear is perfect for a wide range of ages and ability levels, and the outfits can go from the classroom to running errands without looking like gym clothes.
 
 What's more, they're offering a special promotion of <em>40% off</em> select yoga outfits; you can look great and be relaxed for a low price.
 
