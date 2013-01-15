@@ -13,9 +13,9 @@ DanceAway also has a <a href="http://danceawaydesigns.com/collections/yoga-and-a
 
 What's more, they're offering a special promotion of <em>40% off</em> select yoga outfits; you can look great and be relaxed for a low price.
 
-They've also expanded with their new West Coast Swing corner - hot little outfits and super cute dresses chosen specifically for you to stand out on the floor. The social dance crowd is unique in that we get to go from dressed up for comps, to dressed down for late night dancing. The West Coast Swing Corner will always offer styles for that range of dancing, dressed up for fancy comps, comfy and relaxed for dancing until 6 am.  You can find it all here.
+<a href="http://danceawaydesigns.com/collections/the-west-coast-swing-corner"><img src="http://cdn.shopify.com/s/files/1/0150/1774/products/leopardbacktop_medium.jpg" style="box-shadow: 2px 2px 7px 0px black; border-radius: 8px; margin: 8px 38px 0 0px; margin-bottom: 120px; padding: 0; background: 0;" align="left" /></a>
 
-<img src="http://cdn.shopify.com/s/files/1/0150/1774/products/leopardbacktop_medium.jpg" style="box-shadow: 2px 2px 7px 0px black; border-radius: 8px; margin: 8px 38px 0 0px; margin-bottom: 120px; padding: 0; background: 0;" align="left" />
+They've also expanded with their new West Coast Swing corner - hot little outfits and super cute dresses chosen specifically for you to stand out on the floor. The social dance crowd is unique in that we get to go from dressed up for comps, to dressed down for late night dancing. The West Coast Swing Corner will always offer styles for that range of dancing, dressed up for fancy comps, comfy and relaxed for dancing until 6 am.  You can find it all here.
 
 Ready for the best part?  
 
