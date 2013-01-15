@@ -18,7 +18,7 @@ What's more, they're offering a special promotion of <em>40% off</em> select yog
 <br />
 DanceAway has also expanded with the new <a href="http://danceawaydesigns.com/collections/the-west-coast-swing-corner">West Coast Swing corner</a> - hot little outfits and super cute dresses chosen specifically for you to stand out on the floor.
 
-The social dance crowd is unique in that we go from dressed up for comps to relaxed clothing for late night dancing -  The West Coast Swing Corner has you covered with outfits that demand attention, and keeping it relaxed for dancing until 6am.  You can fine it all there.
+The social dance crowd is unique in that we go from dressing up for comps to dressing down for late night dancing -  The West Coast Swing Corner has you covered with outfits that demand attention, and keeping it relaxed for dancing until 6am.
 
 Ready for the best part?
 
