@@ -7,6 +7,8 @@ You probably already know that DanceAway is *the* place to go for dance supplies
 
 There's more though - did you know DanceAway also has a <a href="http://danceawaydesigns.com/collections/yoga-and-activewear">unique line of Yoga-wear</a>?  It's pretty nifty stuff you won't find anywhere else.  What's more, they're offering a special promotion of 40% of select yoga outfits, so you can look cute for a low price.
 
+DanceAway is more than just a shop, they're involved in the community - their weekly blog tells you what's going on and gives you inside reviews on the latest products.  They have decades (literally, decades) of experience.  When you walk in the store, tell them where you're dancing and they probably aleady know the details of what you need.
+
 <a href="http://danceawaydesigns.com/collections/yoga-and-activewear/products/tie-dye-waist-yoga-pant"><img src="http://cdn.shopify.com/s/files/1/0150/1774/products/t_partypant_medium.jpg?71" margin: 8px 38px 0 0; padding: 0; background: 0;" align="left" /></a>
 
 They've also expanded with their new West Coast Swing corner - hot little outfits and super cute dresses chosen specifically for you to stand out on the floor.
@@ -14,8 +16,6 @@ They've also expanded with their new West Coast Swing corner - hot little outfit
 And seriously, you don't know anything until you've seen the custom dance shoes they can deliver.
 
 <img src="http://cdn.shopify.com/s/files/1/0150/1774/products/leopardbacktop_medium.jpg" style="box-shadow: 2px 2px 7px 0px black; border-radius: 8px; margin: 8px 38px 0 0px; margin-bottom: 120px; padding: 0; background: 0;" align="left" />
-
-DanceAway is more than just a shop, they're involved in the community - their weekly blog tells you what's going on and gives you inside reviews on the latest products.  They have decades (literally, decades) of experience.  When you walk in the store, tell them where you're dancing and they probably aleady know the details of what you need.
 
 Ready for the best part?  
 
