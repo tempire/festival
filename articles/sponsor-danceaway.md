@@ -5,7 +5,7 @@ You probably already know that DanceAway is *the* place to go for dance supplies
 
 <img src="/images/danceaway_chip.png" style="width: 199px; margin: 0 0 0 17px; padding: 0; background: 0;" align="right" />
 
-There's more though - did you know DanceAway also has a <a href="http://danceawaydesigns.com/collections/yoga-and-activewear">unique line of Yoga-wear</a>?  It's pretty nifty stuff you won't find anywhere else.
+There's more though - did you know DanceAway also has a <a href="http://danceawaydesigns.com/collections/yoga-and-activewear">unique line of Yoga-wear</a>?  It's pretty nifty stuff you won't find anywhere else.  What's more, they're offering a special promotion of 40% of select yoga outfits, so you can look cute for a low price.
 
 <a href="http://danceawaydesigns.com/collections/yoga-and-activewear/products/tie-dye-waist-yoga-pant"><img src="http://cdn.shopify.com/s/files/1/0150/1774/products/t_partypant_medium.jpg?71" margin: 8px 38px 0 0; padding: 0; background: 0;" align="left" /></a>
 
