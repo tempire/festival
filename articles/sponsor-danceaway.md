@@ -1,11 +1,13 @@
 # Sponsor: DanceAway
-2013-01-09
+2013-01-15
 
-You probably already know, is *the* place to go for dance supplies.  Ballet and tap, baton and roller skating, ballroom and swing, they have everything.
+You probably already know that DanceAway is *the* place to go for dance supplies.  Ballet and tap, baton twirling, roller skating, ballroom and swing - they have everything.
 
 <img src="/images/danceaway_chip.png" style="width: 199px; margin: 0 0 0 17px; padding: 0; background: 0;" align="right" />
 
-There's more though - did you know DanceAway also has a unique line of Yoga-wear?  It's pretty nifty stuff you won't find anywhere else.
+There's more though - did you know DanceAway also has a <a href="http://danceawaydesigns.com/collections/yoga-and-activewear">unique line of Yoga-wear</a>?  It's pretty nifty stuff you won't find anywhere else.
+
+<a href="http://danceawaydesigns.com/collections/yoga-and-activewear/products/tie-dye-waist-yoga-pant"><img src="http://cdn.shopify.com/s/files/1/0150/1774/products/t_partypant_medium.jpg?71" margin: 8px 38px 0 0; padding: 0; background: 0;" align="left" /></a>
 
 They've also expanded with their new West Coast Swing corner - hot little outfits and super cute dresses chosen specifically for you to stand out on the floor.
 
