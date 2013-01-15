@@ -5,7 +5,7 @@ You probably already know that DanceAway is *the* place to go for dance supplies
 
 <img src="/images/danceaway_chip.png" style="width: 199px; margin: 0 0 50px 17px; padding: 0; background: 0;" align="right" />
 
-DanceAway is more than just a shop, they're involved in the community - their weekly blog tells you what's going on and gives you inside reviews on the latest products. They have decades (literally, decades) of experience. When you walk in the store, tell them where you're dancing and they probably aleady know the details of what you need.
+DanceAway is more than just a shop, they're involved in the community - their blog, Facebook, and Twitter feed tells you what's going on and gives you inside reviews on the latest products. They have decades (literally, decades) of experience. When you walk in the store, tell them where you're dancing and they probably aleady know the details of what you need.
 
 <a href="http://danceawaydesigns.com/collections/yoga-and-activewear/products/tie-dye-waist-yoga-pant"><img src="http://cdn.shopify.com/s/files/1/0150/1774/products/t_partypant_medium.jpg?71" style="box-shadow: 2px 2px 7px 0px black; border-radius: 8px; margin: 8px 28px 5px 0; padding: 0; background: 0;" align="left" /></a>
 
