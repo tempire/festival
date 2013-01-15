@@ -15,11 +15,11 @@ What's more, they're offering a special promotion of <em>40% off</em> select yog
 
 <a href="http://danceawaydesigns.com/collections/the-west-coast-swing-corner"><img src="http://cdn.shopify.com/s/files/1/0150/1774/products/leopardbacktop_medium.jpg" style="box-shadow: 2px 2px 7px 0px black; border-radius: 8px; margin: 0 0 50px 17px; margin-bottom: 120px; padding: 0; background: 0;" align="right" /></a>
 
-They've also expanded with their new <a href="http://danceawaydesigns.com/collections/the-west-coast-swing-corner">West Coast Swing corner</a> - hot little outfits and super cute dresses chosen specifically for you to stand out on the floor.
+DanceAway has also expanded with the new <a href="http://danceawaydesigns.com/collections/the-west-coast-swing-corner">West Coast Swing corner</a> - hot little outfits and super cute dresses chosen specifically for you to stand out on the floor.
 
-The social dance crowd is unique in that we get to go from dressed up for comps, to dressed down for late night dancing. The West Coast Swing Corner will always offer styles for that range of dancing, dressed up for fancy comps, comfy and relaxed for dancing until 6 am.  You can find it all here.
+The social dance crowd is unique in that we go from dressed up for comps to relaxed clothing for late night dancing -  The West Coast Swing Corner has you covered with outfits that demand attention, and keeping it relaxed for dancing until 6am.  You can fine it all there.
 
-Ready for the best part?  
+Ready for the best part?
 
 It's all available online. You can get all your danceaway supplies any time from their <a href="http://danceawaydesigns.com/">easy website</a>. 
 
