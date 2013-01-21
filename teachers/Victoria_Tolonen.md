@@ -10,10 +10,10 @@ Her awards include:
 
 * 1st Place Palm Springs Swing Dance Classic 2010
 * 2nd Place Nightclub 2 Step Bridgetown Swing 2012
-* 2nd & 3rd Places Desert City Swing 2009
+* 2nd & 3rd Places <a href="http://www.desertcityswing.com/">Desert City Swing</a> 2009
 * 1st Place Nov Country Two Step Portland Dance Festival 2008
-* 2nd Place Portland Dance Festival 2008
-* 1st Place Bridgetown Swing 2008
+* 2nd Place <a href="http://www.portlanddancefestival.com/">Portland Dance Festival</a> 2008
+* 1st Place <a href="http://www.portlandswing.org/bts/">Bridgetown Swing</a> 2008
 * 1st Place Bridgetown Swing 2007
 * 1st Place Summer Dance Camp 2006
 * 1st Place Salsa Reno Dance Sensation 2004
@@ -22,7 +22,9 @@ Her awards include:
 
 She has been teaching and promoting dance in Bend, Oregon since 2002. Her teaching focuses on the technique of social partner dancing, creating smooth leads and silky follows. She hosts and DJs weekly dances, classes and special events throughout the area and she was the manager of the Bend Summer Festival Dance Stage for 5 years. Locally she has taught and performed at events such as the Central Oregon Wedding & Event Show, St. Charles All Saints Gala, Dress Up and Dance, The Center Medical Fundraiser, The Bite of Bend, Taste of the Town, and Bend Summer Festival.
 
-Off the dance floor Victoria is a residential Real Estate Broker with Alpine Real Estate and spends spare time doing disaster relief work in cool places like Indonesia, Mongolia and Albania.  BendDance.com
+Off the dance floor Victoria is a residential Real Estate Broker with Alpine Real Estate and spends spare time doing disaster relief work in cool places like Indonesia, Mongolia and Albania.  
+
+Check out her local scene at <a href="http://www.benddance.com/">BendDance.com!</a>
 
 ## Videos
 * http://www.youtube.com/watch?v=FmxSk0wZxss&feature=g-logo-xit
