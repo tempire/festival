@@ -1,5 +1,6 @@
 # Victoria Tolonen
 <img src="https://drive.google.com/uc?export=download&id=0BxMUSE4B9Cu1eFZ3MWxCODE3c2M" width="200" />
+
 ## About
 Victoria has 30 years of experience dancing, in West Coast Swing, Salsa, ballroom, hip hop, jazz, skating and competition cheerleading. She has danced Salsa since 1993 and was a member of Ritmo Latino, the first Salsa troupe in Oregon, spreading the love of Latin dancing throughout the state. In 1997-1998 she toured the United States and Europe with the international musical Up With People as a principal dancer, performing jazz, hip hop and folkloric dances. She has danced in Latin America, Asia, and Europe and is recognized as one of the original Salseras in the Northwest. While teaching at a Salsa Congress in 2002 Victoria discovered West Coast Swing and fell in love with the sexy connection, depth and musicality of the dance.
 
