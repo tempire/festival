@@ -24,8 +24,6 @@ She has been teaching and promoting dance in Bend, Oregon since 2002. Her teachi
 
 Off the dance floor Victoria is a residential Real Estate Broker with Alpine Real Estate and spends spare time doing disaster relief work in cool places like Indonesia, Mongolia and Albania.  BendDance.com
 
-<div class="videos">
 ## Videos
 * http://www.youtube.com/watch?v=FmxSk0wZxss&feature=g-logo-xit
 * http://www.youtube.com/watch?v=tXaipqgjT3o
-</div>
