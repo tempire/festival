@@ -1,5 +1,5 @@
 # Devin McBain
-<img src="https://drive.google.com/uc?export=download&id=0BxMUSE4B9Cu1X21xRVliOUxhZDA" width="200" />
+<img src="https://drive.google.com/uc?export=download&id=0BxMUSE4B9Cu1X21xRVliOUxhZDA" width="200" style="margin-bottom: 0px;" />
 
 ## About
 Devin McBain's dance journey began at age 3 when she fell in love with bellydance, her mother's chosen style.  She began performing with and choreographing for the bellydance troupe Parvati at age 12, and she started placing in bellydance competitions at age 13.  She now competes at the professional level, and she is proud to be a house dancer at Marrakech Moroccan Restaurant in Sacramento since 2011.
