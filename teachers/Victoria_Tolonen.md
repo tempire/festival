@@ -4,7 +4,7 @@
 ## About
 Victoria has 30 years of experience dancing, in West Coast Swing, Salsa, ballroom, hip hop, jazz, skating and competition cheerleading. She has danced Salsa since 1993 and was a member of Ritmo Latino, the first Salsa troupe in Oregon, spreading the love of Latin dancing throughout the state. In 1997-1998 she toured the United States and Europe with the international musical Up With People as a principal dancer, performing jazz, hip hop and folkloric dances. She has danced in Latin America, Asia, and Europe and is recognized as one of the original Salseras in the Northwest. While teaching at a Salsa Congress in 2002 Victoria discovered West Coast Swing and fell in love with the sexy connection, depth and musicality of the dance.
 
-Victoria has competed for several years as an All-Star Swing competitor and is invited to teach and judge at national West Coast Swing and Salsa events, including Palm Springs Swing Dance Classic, Palm Springs Salsa & Rueda Congress, Reno Dance Sensation, and Portland Salsa Congress. 
+Victoria has competed for several years as an All-Star Swing competitor and is invited to teach and judge at national West Coast Swing and Salsa events, including <a href="http://www.peoplewhodance.net/summer/swing/index.php">Palm Springs Swing Dance Classic</a>, <a href="http://www.peoplewhodance.net/summer/salsa/">Palm Springs Salsa & Rueda Congress</a>, Reno Dance Sensation, and <a href="http://www.geminivip.com/index.php/en/pschome2">Portland Salsa Congress</a>. 
 
 Her awards include:
 
