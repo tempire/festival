@@ -17,10 +17,10 @@ Her awards include:
 * 1st Place Bridgetown Swing 2007
 * 1st Place Summer Dance Camp 2006
 * 1st Place Salsa Reno Dance Sensation 2004
-* 2nd Place New Year’s Dance Camp 2005
-* 2nd Place New Year’s Dance Camp 2004
+* 2nd Place New Year's Dance Camp 2005
+* 2nd Place New Year's Dance Camp 2004
 
-She has been teaching and promoting dance in Bend, Oregon since 2002. Her teaching focuses on the technique of social partner dancing, creating smooth leads and silky follows. She hosts and dj’s weekly dances, classes and special events throughout the area and she was the manager of the Bend Summer Festival Dance Stage for 5 years. Locally she has taught and performed at events such as the Central Oregon Wedding & Event Show, St. Charles All Saints Gala, Dress Up and Dance, The Center Medical Fundraiser, The Bite of Bend, Taste of the Town, and Bend Summer Festival.
+She has been teaching and promoting dance in Bend, Oregon since 2002. Her teaching focuses on the technique of social partner dancing, creating smooth leads and silky follows. She hosts and DJs weekly dances, classes and special events throughout the area and she was the manager of the Bend Summer Festival Dance Stage for 5 years. Locally she has taught and performed at events such as the Central Oregon Wedding & Event Show, St. Charles All Saints Gala, Dress Up and Dance, The Center Medical Fundraiser, The Bite of Bend, Taste of the Town, and Bend Summer Festival.
 
 Off the dance floor Victoria is a residential Real Estate Broker with Alpine Real Estate and spends spare time doing disaster relief work in cool places like Indonesia, Mongolia and Albania.  BendDance.com
 
