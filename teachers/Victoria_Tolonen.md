@@ -7,6 +7,7 @@ Victoria has 30 years of experience dancing, in West Coast Swing, Salsa, ballroo
 Victoria has competed for several years as an All-Star Swing competitor and is invited to teach and judge at national West Coast Swing and Salsa events, including Palm Springs Swing Dance Classic, Palm Springs Salsa & Rueda Congress, Reno Dance Sensation, and Portland Salsa Congress. 
 
 Her awards include:
+
 * 1st Place Palm Springs Swing Dance Classic 2010
 * 2nd Place Nightclub 2 Step Bridgetown Swing 2012
 * 2nd & 3rd Places Desert City Swing 2009
