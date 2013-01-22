@@ -27,5 +27,5 @@ Off the dance floor Victoria is a residential Real Estate Broker with Alpine Rea
 Check out her local scene at <a href="http://www.benddance.com/">BendDance.com!</a>
 
 ## Videos
-* http://www.youtube.com/watch?v=FmxSk0wZxss&feature=g-logo-xit
-* http://www.youtube.com/watch?v=tXaipqgjT3o
+* http://www.youtube.com/watch?v=eA9oBjX4cDc
+* http://www.youtube.com/watch?v=7MzjmgdhAG0
