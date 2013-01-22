@@ -1,10 +1,9 @@
 # Joel Minden
-<img src="http://placekitten.com/g/200/300" />
+<img src="https://s1dancefest.s3.amazonaws.com/Joel%20Minden.jpg" />
 
 ## About
-Jelly-o chocolate bar chocolate cake wypas oat cake powder chupa chups topping. Bear claw bonbon soufflé. Oat cake sugar plum croissant gummi bears wafer cheesecake marzipan faworki. Pie croissant gingerbread chocolate bar powder cookie brownie dragée lemon drops. Pudding tiramisu bonbon. Donut jujubes marshmallow donut chocolate bar danish jelly-o. Sugar plum faworki icing faworki carrot cake caramels pudding.
+Joel Minden is an amateur dancesport competitor in the International Standard style, which includes waltz, tango, foxtrot, and quickstep. He is the winner of the 2010 Pacific Grand Ball and 2011 UC Berkeley Ballroom Classic competitions in the prechampionship divisions. Joel has been a finalist at the Manhattan Amateur Classic, International Grand Ball, San Francisco Open, California Star Ball, City Lights Ball, and Stanford University Cardinal Classic. Whether your goal is competition dancing, social dancing, or preparing for your wedding dance, you've come to the right place. Joel is available to teach individuals, couples, and groups at Studio One Ballroom in Chico, CA. For scheduling, please call (530) 763-2653 or e-mail.
 
-Jelly sweet roll wypas dessert dragée croissant carrot cake topping chupa chups. Cheesecake pie biscuit pudding. Soufflé biscuit apple pie croissant tart lemon drops. Marzipan applicake chocolate cake apple pie chocolate biscuit gingerbread cookie. Sweet roll liquorice jelly applicake macaroon jujubes ice cream. Chocolate fruitcake dragée chocolate bar dessert sweet. Toffee marshmallow jelly-o tiramisu candy chocolate chocolate bar. Cupcake marshmallow bear claw. Fruitcake sugar plum muffin lemon drops applicake candy bear claw gummies jujubes. Jelly-o biscuit applicake brownie danish sugar plum.
 
 ## Videos
 * http://www.youtube.com/watch?v=FmxSk0wZxss&feature=g-logo-xit
