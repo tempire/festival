@@ -1,5 +1,5 @@
 # Tami Krok
-<img src="http://placekitten.com/g/200/300" />
+<img src="https://s1dancefest.s3.amazonaws.com/Tami%20Krok.jpg?placekitten" />
 
 ## About
 Jelly-o chocolate bar chocolate cake wypas oat cake powder chupa chups topping. Bear claw bonbon soufflé. Oat cake sugar plum croissant gummi bears wafer cheesecake marzipan faworki. Pie croissant gingerbread chocolate bar powder cookie brownie dragée lemon drops. Pudding tiramisu bonbon. Donut jujubes marshmallow donut chocolate bar danish jelly-o. Sugar plum faworki icing faworki carrot cake caramels pudding.
