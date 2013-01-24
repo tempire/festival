@@ -1,5 +1,5 @@
 # Matt Richey
-<img src="https://s1dancefest.s3.amazonaws.com/og/Matt%20Richey.png" />
+<img src="https://s1dancefest.s3.amazonaws.com/Matt%20Richey.jpg" />
 
 ## About
 Matt has had top placements in regional, national, and international swing events including ﬁrst place in the balboa division at the National Jitterbug Championships.  Teaching since 2003, he is passionate about sharing the fun, technique, skill, and history of vintage dances such as Lindy Hop, Big Apple, Collegiate Shag, Balboa, Shim Sham, Vernacular jazz, Charleston, Tranky Doo, and many more!
