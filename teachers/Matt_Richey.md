@@ -1,7 +1,9 @@
 # Matt Richey
-<img src="http://placekitten.com/g/200/300" />
+<img src="https://s1dancefest.s3.amazonaws.com/og/Matt%20Richey.png" />
 
 ## About
-Jelly-o chocolate bar chocolate cake wypas oat cake powder chupa chups topping. Bear claw bonbon soufflé. Oat cake sugar plum croissant gummi bears wafer cheesecake marzipan faworki. Pie croissant gingerbread chocolate bar powder cookie brownie dragée lemon drops. Pudding tiramisu bonbon. Donut jujubes marshmallow donut chocolate bar danish jelly-o. Sugar plum faworki icing faworki carrot cake caramels pudding.
+Matt has had top placements in regional, national, and international swing events including ﬁrst place in the balboa division at the National Jitterbug Championships.  Teaching since 2003, he is passionate about sharing the fun, technique, skill, and history of vintage dances such as Lindy Hop, Big Apple, Collegiate Shag, Balboa, Shim Sham, Vernacular jazz, Charleston, Tranky Doo, and many more!
 
-Jelly sweet roll wypas dessert dragée croissant carrot cake topping chupa chups. Cheesecake pie biscuit pudding. Soufflé biscuit apple pie croissant tart lemon drops. Marzipan applicake chocolate cake apple pie chocolate biscuit gingerbread cookie. Sweet roll liquorice jelly applicake macaroon jujubes ice cream. Chocolate fruitcake dragée chocolate bar dessert sweet. Toffee marshmallow jelly-o tiramisu candy chocolate chocolate bar. Cupcake marshmallow bear claw. Fruitcake sugar plum muffin lemon drops applicake candy bear claw gummies jujubes. Jelly-o biscuit applicake brownie danish sugar plum.
+Matt has a background in the performing arts. He has performed in Disneyland, cruise ships, variety stage shows, with Big Bad Voodoo Daddy, stage dance shows, and has been ﬁlmed for an upcoming TV show. He travels several times a month to Judge, Teach, DJ, and Compete all over the nation as well as running a monthly dance venue, teaching at local schools, dance studios, and runs a youth swing program and performance team.
+
+Matt Richey is hoping to keep swing alive in the community and the world, using dance as a positive outlet and healthy lifestyle.
