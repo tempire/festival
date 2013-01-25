@@ -32,8 +32,6 @@ Some of the instructors with whom Heidi has partnered include:
 * Mike Faltesek
 * Solomon Douglas
 
-For private instruction rates and availability, please e-mail Heidi at <a href="heidi@blues-dance.com">heidi@blues-dance.com</a> or call her at +1 (415) 533-9465.
-
 ## Videos
 * http://www.youtube.com/watch?v=WfjA79Gw7Ps
 * http://www.youtube.com/watch?v=Tugz7Ng3MUY
