@@ -10,3 +10,4 @@ Matt Richey is hoping to keep swing alive in the community and the world, using 
 
 ## Videos
 * http://www.youtube.com/watch?v=ApLoY2rrEwM
+* http://www.youtube.com/watch?v=4YP65nbCZLo
