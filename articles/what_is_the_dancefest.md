@@ -14,4 +14,18 @@ For years, hundreds of dancers have come out week after week to dance to every s
 
 That's what S1 DanceFest is all about.  No worries.  No pretense.  Just having a great time.  
 
+* Salsa
+* Rueda
+* Waltz
+* Rhumba
+* Cha Cha
+* Night Club
+* Argentine Tango
+* Country Two-Step
+* West Coast Swing
+* Lindy Hop
+* NY Hustle
+* Hip Hop
+* Blues
+
 <a href="https://dancefest.herokuapp.com/registration" style="font-size: 2em; position: relative; top: 15px">Register Now</a>
