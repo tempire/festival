@@ -8,6 +8,8 @@ Dancers from Chico, Paradise, Oroville, Redding, and Sacramento have participate
 <img src="http://s1dancefest.com/images/articles/what-is-dancefest/back-in-the-dizzle.jpg" style="float: right" title="All the Peeps" />
 Hundreds of dancers have come out week after week, dancing all the ballroom dances, all having a super time, moving around the floor <a href="http://www.youtube.com/watch?feature=player_detailpage&v=ZZ5LpwO-An4" style="text-decoration:none;color:#D0D1D4;">no matter what style</a> of music was playing.
 
+<p style="font-size: 1.5em:">4 DAYS OF DANCING</p>
+
 <!--
 For years, hundreds of dancers have come out week after week to dance to every song in every style of dance.  No matter what style of music is playing, the floor is always full of people having fun.	
 -->
