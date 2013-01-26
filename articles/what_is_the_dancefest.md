@@ -3,9 +3,7 @@
 
 DanceFest is a 4-day dance festival where you can learn a wide variety of dances, including Ballroom and club style genres; social dancing starts early and goes all night long. We're throwing an event that brings all of the diverse communities in Northern California together for one fantastic dance and fun filled weekend.
 
-
-<p style="font-size: 1.5em;">4 DAYS OF DANCING</p>
-
+<p style="font-size: 2em; font-weight: bold; margin: -10px 0 20px 0;">4 DAYS OF DANCING</p>
 
 Dancers from Chico, Paradise, Oroville, Redding, and Sacramento have participated in making our community active and unique for over a decade.  Ballroom, Lindy Hop, West Coast Swing - no matter what the style, dancers of all ages have made our scene different from anywhere else in the world. 
 
