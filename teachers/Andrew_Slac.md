@@ -12,4 +12,4 @@ We've captured several quotes from Andrew in his travels to give you an idea of 
 
 <blockquote>If I could give someone a bit of advice about dance, it would be to look for that perfect moment in any dance, whether it be a class, performance or just a night out on the dance floor. Let go of everything and just live.</blockquote>
 
-He currently manages Nonsense Dance Company (http://nonsensedance.webstarts.com/), choreographing and training in Hip Hop, Contemporary and Jazz. Andrew primarily teaches out of Vega Dance + Lab (http://www.vegadancelab.com/), located in Portland, Oregon.
+He currently manages <a href="http://nonsensedance.webstarts.com/">Nonsense Dance Company</a>, choreographing and training in Hip Hop, Contemporary and Jazz. Andrew primarily teaches out of <a href="http://www.vegadancelab.com/">Vega Dance + Lab</a>, located in Portland, Oregon.
