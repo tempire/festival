@@ -6,7 +6,7 @@ Andrew Slac is a professional Lindy Hop, West Coast Swing and Hip Hop teacher, d
 
 We've captured several quotes from Andrew in his travels to give you an idea of who he his and how he works:
 
-<blockquote><span>I've been dancing the majority of my life. The first dancer I really latched on to was Bob Fosse, then Salah Benlemqawanssa and basically every single other dancer I saw after that. I've trained with the best, and still attribute my passion and success to <a href="http://www.stevenandvirginie.com/">Steven Mitchell and Virginie Jensen</a>.They gave me the spirit, and I can't thank them enough. After that, I soaked up all of the training I could, traveled, competed and taught. My life is basically amazing.</span></blockquote>
+<blockquote><span>I've been dancing the majority of my life. The first dancer I really latched on to was Bob Fosse, then Salah Benlemqawanssa and basically every single other dancer I saw after that. I've trained with the best, and still attribute my passion and success to <a href="http://www.stevenandvirginie.com/">Steven Mitchell and Virginie Jensen</a>. They gave me the spirit, and I can't thank them enough. After that, I soaked up all of the training I could, traveled, competed and taught. My life is basically amazing.</span></blockquote>
 
 <blockquote><span>My purpose is to raise up those around me and make them realize and appreciate just how incredible they are, on and off the dance floor.</span></blockquote>
 
