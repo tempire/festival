@@ -1,7 +1,15 @@
 # Andrew Slac
-<img src="https://s1dancefest.s3.amazonaws.com/Andrew%20Slac.jpg?placekitten" />
+<img src="https://s1dancefest.s3.amazonaws.com/Andrew%20Slac.jpg" />
 
 ## About
-Jelly-o chocolate bar chocolate cake wypas oat cake powder chupa chups topping. Bear claw bonbon soufflé. Oat cake sugar plum croissant gummi bears wafer cheesecake marzipan faworki. Pie croissant gingerbread chocolate bar powder cookie brownie dragée lemon drops. Pudding tiramisu bonbon. Donut jujubes marshmallow donut chocolate bar danish jelly-o. Sugar plum faworki icing faworki carrot cake caramels pudding.
+Andrew Slac is a professional Lindy Hop, West Coast Swing and Hip Hop teacher, dancer and choreographer from Portland, Oregon.
 
-Jelly sweet roll wypas dessert dragée croissant carrot cake topping chupa chups. Cheesecake pie biscuit pudding. Soufflé biscuit apple pie croissant tart lemon drops. Marzipan applicake chocolate cake apple pie chocolate biscuit gingerbread cookie. Sweet roll liquorice jelly applicake macaroon jujubes ice cream. Chocolate fruitcake dragée chocolate bar dessert sweet. Toffee marshmallow jelly-o tiramisu candy chocolate chocolate bar. Cupcake marshmallow bear claw. Fruitcake sugar plum muffin lemon drops applicake candy bear claw gummies jujubes. Jelly-o biscuit applicake brownie danish sugar plum.
+We've captured several quotes from Andrew in his travels to give you an idea of who he his and how he works:
+
+<blockquote>I've been dancing the majority of my life. The first dancer I really latched on to was Bob Fosse, then Salah Benlemqawanssa and basically every single other dancer I saw after that. I've trained with the best, and still attribute my passion and success to Steven Mitchell and Virginie Jensen (http://www.stevenandvirginie.com/).They gave me the spirit, and I can't thank them enough. After that, I soaked up all of the training I could, traveled, competed and taught. My life is basically amazing.</blockquote>
+
+<blockquote>My purpose is to raise up those around me and make them realize and appreciate just how incredible they are, on and off the dance floor.</blockquote>
+
+<blockquote>If I could give someone a bit of advice about dance, it would be to look for that perfect moment in any dance, whether it be a class, performance or just a night out on the dance floor. Let go of everything and just live.</blockquote>
+
+He currently manages Nonsense Dance Company (http://nonsensedance.webstarts.com/), choreographing and training in Hip Hop, Contemporary and Jazz. Andrew primarily teaches out of Vega Dance + Lab (http://www.vegadancelab.com/), located in Portland, Oregon.
