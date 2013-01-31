@@ -7,6 +7,7 @@ John Kynston Piper has been dancing for the past 18 years and has been an avid p
 Four years after having found partner dancing, John began dancing west coast swing which has become his life’s passion. Through west coast swing he has found an outlet for all of his different dance influences as well as a way to express his love of diverse types of music. He currently deejays, teaches, competes in and performs west coast swing in communities all over the country.
 
 John has won competitions and awards including:
+
 * Palm Springs Summer Dance Camp
 * Desert City Swing
 * Chico Dance Sensation
@@ -16,4 +17,4 @@ John has won competitions and awards including:
 
 John is committed to spreading positivity, joy and the love of dance to everyone he has the fortune of meeting. He is currently doing this through <a href="http://facebook.com/ThePiperMovement">The Piper Movement</a>, which is comprised of people all over the world who are also devoted to spreading these values. Please feel free to join him <a href="http://facebook.com/ThePiperMovement">on Facebook</a>.
 
-John is a husband and a father. His family and their support is what makes his love of dance able to thrive. A special thanks goes out to Erica and Malakai for their love and support.
+John is a husband and a father. His family and their support is what makes his love of dance able to thrive. A special thanks goes out to his wife Erica and son Malakai for their love and support.
