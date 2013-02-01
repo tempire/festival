@@ -1,7 +1,9 @@
 # Andrew Slac
-<img src="https://s1dancefest.s3.amazonaws.com/Andrew%20Slac.jpg?placekitten" />
+<img src="https://s1dancefest.s3.amazonaws.com/Andrew%20Slac.jpg" />
 
+<!--
 <input type="hidden" caption="Photo%20by%20%3Ca%20href%3D%22http%3A%2F%2Fwww.bradfordwhelan.com%2F%22%3EBrad%20Whelan%3C%2Fa%3E"/>
+-->
 
 ## About
 Andrew Slac is a professional Lindy Hop, West Coast Swing and Hip Hop teacher, dancer and choreographer from Portland, Oregon.
