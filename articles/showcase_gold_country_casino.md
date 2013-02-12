@@ -5,7 +5,7 @@ DanceFest is about one thing - having a great time.  As such, we want to do some
 
 ### Classes
 <img src="http://s1dancefest.com/images/articles/showcase-the-venue/espressobar.jpg" style="float: right;" />
-The classes will be held in in large, beautifully well-lit rooms, with ceiling-to-floor windows.  The classes are held right next to each other, so there's no danger of getting lost as you navigate the event.
+The classes will be held in a large, beautifully well-lit rooms, with ceiling-to-floor windows.  The classes are held right next to each other, so there's no danger of getting lost as you navigate the event.
 
 As you drop in to each class, stop by the Espresso Bar to get your energy fix - you can't miss it - it's *10 feet from each classroom*.
 
@@ -20,7 +20,7 @@ There is also a 24-hour cafe for late-nights; there's no reason you need to go h
 
 If you want something a little nicer, a full-service steakhouse is waiting for you.  This isn't your average Outback dinner, but rather high-class chefs creating mouth-watering dishes available only at Gold Country.
 
-And yes, that is bacon-wrapped filet mignon.
+And yes, that is a bacon-wrapped filet mignon.
 
 <a name="rooms" />
 ### Rooms
@@ -29,7 +29,7 @@ If you decide you want to spend your evenings lounging instead of driving home, 
 
 ### Extras
 <img src="http://s1dancefest.com/images/articles/showcase-the-venue/spirits.jpg" style="float: left; margin-left: 0px;" />
-If you want to loosen up a bit, there's plenty of spirits available at Gold Country's spirit lounge, and 10 on-tap brews for the beer lovers.  You can even stop by the piano bar for break.  And last but not least - it's a casino!  If you want to try your hand at some of the games, it's only a step or two away.
+If you want to loosen up a bit, there's plenty of spirits available at Gold Country's spirit lounge, and 10 on-tap brews for the beer lovers.  You can even stop by the piano bar for a break.  And last but not least - it's a casino!  If you want to try your hand at some of the games, it's only a step or two away.
 
 <a name="location" />
 ### Location
