@@ -1,5 +1,5 @@
 # John Piper
-<img src="https://s1dancefest.s3.amazonaws.com/John%20Piper.jpg?placekitten" />
+<img src="https://s1dancefest.s3.amazonaws.com/John%20Piper.jpg" />
 
 ## About
 John Kynston Piper has been dancing for the past 18 years and has been an avid partner dancer for the last 11 of those years. His first dance influences were hip-hop and break-dancing. He then made the transition to partner dancing as a member of the Paradise Dancers where he studied performance and social ballroom. As a Paradise Dancer he performed and choreographed a variety of dance pieces as well as beginning his teaching career.
