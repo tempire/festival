@@ -10,9 +10,9 @@ Four years after having found partner dancing, John began dancing west coast swi
 
 John has won competitions and awards including:
 
-* Palm Springs Summer Dance Camp
-* Desert City Swing
-* Chico Dance Sensation
+* <a href="http://www.peoplewhodance.net/summer/swing/index.php">Palm Springs Summer Dance Camp</a>
+* <a href="http://www.desertcityswing.com/">Desert City Swing</a>
+* <a href="http://www.chicodancesensation.com/">Chico Dance Sensation</a>
 * Hawaii Dance Sensation
 * The Northern California Swing Dance Championships
 * Boogie By The Bay’s Social Dancer of the year award.
