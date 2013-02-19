@@ -6,6 +6,8 @@ John Kynston Piper has been dancing for the past 18 years and has been an avid p
 
 Four years after having found partner dancing, John began dancing west coast swing which has become his life’s passion. Through west coast swing he has found an outlet for all of his different dance influences as well as a way to express his love of diverse types of music. He currently deejays, teaches, competes in and performs west coast swing in communities all over the country.
 
+<p></p>
+
 John has won competitions and awards including:
 
 * Palm Springs Summer Dance Camp
