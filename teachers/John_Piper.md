@@ -18,3 +18,7 @@ John has won competitions and awards including:
 John is committed to spreading positivity, joy and the love of dance to everyone he has the fortune of meeting. He is currently doing this through <a href="http://facebook.com/ThePiperMovement">The Piper Movement</a>, which is comprised of people all over the world who are also devoted to spreading these values. Please feel free to join him <a href="http://facebook.com/ThePiperMovement">on Facebook</a>.
 
 John is a husband and a father. His family and their support is what makes his love of dance able to thrive. A special thanks goes out to his wife Erica and son Malakai for their love and support.
+
+## Videos
+* http://www.youtube.com/watch?v=eA9oBjX4cDc
+* http://www.youtube.com/watch?v=7MzjmgdhAG0
