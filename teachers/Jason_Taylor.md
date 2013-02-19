@@ -2,6 +2,7 @@
 <img src="https://s1dancefest.s3.amazonaws.com/Jason%20Taylor.jpg?placekitten" />
 
 ## About
-Jelly-o chocolate bar chocolate cake wypas oat cake powder chupa chups topping. Bear claw bonbon soufflé. Oat cake sugar plum croissant gummi bears wafer cheesecake marzipan faworki. Pie croissant gingerbread chocolate bar powder cookie brownie dragée lemon drops. Pudding tiramisu bonbon. Donut jujubes marshmallow donut chocolate bar danish jelly-o. Sugar plum faworki icing faworki carrot cake caramels pudding.
+Jason Taylor has been dancing competitive West Coast Swing for the past six years and was raised through the instruction of champion dancer Sean McKeaver and constant support of his loving, caring, handsome and talented brother, Matthew Taylor. Jason regularly competes at the all star level and took first place at Chico Dance Sensation 2011 (he really wanted to impress Matthew). Now he teaches every week at the WnY Warehouse and pushes himself everyday to not only become a better dancer, but also the best instructor he can be.
 
-Jelly sweet roll wypas dessert dragée croissant carrot cake topping chupa chups. Cheesecake pie biscuit pudding. Soufflé biscuit apple pie croissant tart lemon drops. Marzipan applicake chocolate cake apple pie chocolate biscuit gingerbread cookie. Sweet roll liquorice jelly applicake macaroon jujubes ice cream. Chocolate fruitcake dragée chocolate bar dessert sweet. Toffee marshmallow jelly-o tiramisu candy chocolate chocolate bar. Cupcake marshmallow bear claw. Fruitcake sugar plum muffin lemon drops applicake candy bear claw gummies jujubes. Jelly-o biscuit applicake brownie danish sugar plum.
+## Videos
+* http://www.youtube.com/watch?v=VZhBtZTMm8Q
