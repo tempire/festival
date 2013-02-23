@@ -1,8 +1,8 @@
 # Jason Taylor
-<img src="https://s1dancefest.s3.amazonaws.com/Jason%20Taylor.jpg?placekitten" />
+<img src="https://s1dancefest.s3.amazonaws.com/Jason%20Taylor.jpg" />
 
 ## About
-Jason Taylor has been dancing competitive West Coast Swing for the past six years and was raised through the instruction of champion dancer Sean McKeaver and constant support of his loving, caring, handsome and talented brother, Matthew Taylor. Jason regularly competes at the all star level and took first place at Chico Dance Sensation 2011 (he really wanted to impress Matthew). Now he teaches every week at the WnY Warehouse and pushes himself everyday to not only become a better dancer, but also the best instructor he can be.
+Jason Taylor has been competing in West Coast Swing for five years and currently dances in the All-Star division.  He has been introduced to multiple forms of dance but none of them enticed him as much as West Coast Swing. He loves the community and the support that surrounds it.  Being able to teach and help the dance grow is a great opportunity and always a pleasure to take part in.  It is an addicting dance and he hopes that it continues to grow all around the world.
 
 ## Videos
 * http://www.youtube.com/watch?v=VZhBtZTMm8Q
