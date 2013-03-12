@@ -1,5 +1,5 @@
 # Janelle Guido
-<img src="https://s1dancefest.s3.amazonaws.com/Janelle%20Guido.jpg?placekitten" />
+<img src="https://s1dancefest.s3.amazonaws.com/Janelle%20Guido.jpg" />
 
 ## About
 Janelle Guido started ballet and tap dance lessons when she was five years old. Her first class performance was something she’ll never forget because she watched it from the front row seat, due to severe stage fright.
