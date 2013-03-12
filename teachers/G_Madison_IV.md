@@ -1,5 +1,5 @@
 # G Madison IV
-<img src="https://s1dancefest.s3.amazonaws.com/G Madison IV.jpg?placekitten" />
+<img src="https://s1dancefest.s3.amazonaws.com/G Madison IV.jpg" />
 
 ## About
 
