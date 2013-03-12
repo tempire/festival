@@ -1,5 +1,5 @@
 # John Piper
-<img src="https://s1dancefest.s3.amazonaws.com/John%20Piper.jpg?placekitten" />
+<img src="https://s1dancefest.s3.amazonaws.com/John%20Piper.jpg" />
 
 ## About
 John Kynston Piper has been dancing for the past 18 years and has been an avid partner dancer for the last 11 of those years. His first dance influences were hip-hop and break-dancing. He then made the transition to partner dancing as a member of the Paradise Dancers where he studied performance and social ballroom. As a Paradise Dancer he performed and choreographed a variety of dance pieces as well as beginning his teaching career.
@@ -18,7 +18,3 @@ John has won competitions and awards including:
 John is committed to spreading positivity, joy and the love of dance to everyone he has the fortune of meeting. He is currently doing this through <a href="http://facebook.com/ThePiperMovement">The Piper Movement</a>, which is comprised of people all over the world who are also devoted to spreading these values. Please feel free to join him <a href="http://facebook.com/ThePiperMovement">on Facebook</a>.
 
 John is a husband and a father. His family and their support is what makes his love of dance able to thrive. A special thanks goes out to his wife Erica and son Malakai for their love and support.
-
-## Videos
-* http://www.youtube.com/watch?v=eA9oBjX4cDc
-* http://www.youtube.com/watch?v=7MzjmgdhAG0
